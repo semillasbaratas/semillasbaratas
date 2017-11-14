@@ -23,7 +23,7 @@ incorporar a su tienda online más de 80 bancos de semillas de cannabis, lo que 
 convierte en el grow shop con la mayor variedad de semillas de toda la red.
 
 Con un diseño sencillo y totalmente intuitivo, podrás escoger entre una infinidad de
-semillas regulares, <a href="https://semillasbaratas.com/es/semillas-feminizadas/">semillas feminizadas</a>, autoflorescientes y semillas CBD, y todas ellas son de
+semillas regulares, <a href="https://semillasbaratas.com/es/semillas-feminizadas/">semillas feminizadas</a>, <a href="https://semillasbaratas.com/es/semillas-autoflorecientes/">semillas autoflorescientes</a> y semillas CBD, y todas ellas son de
 máxima calidad, ofrecen el mejor sabor y una potencia que te pondrá a temblar. En el
 momento en que las pruebes lo comprobarás tú mismo.
 
